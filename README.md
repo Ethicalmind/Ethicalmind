@@ -17,8 +17,7 @@ Email Me 👉 ✉️ ** Workcollege174@gmail.com** For Collaboration/Project or 
 
   
 ## 🌐 Socials:
-[![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/AnimeshJha64) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/Animesh Jha) [![Pinterest](https://img.shields.io/badge/Pinterest-%23E60023.svg?logo=Pinterest&logoColor=white)](https://pinterest.com/Animesh jha irtmrt3@gmail.com) [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://youtube.com/@animeshanimations7494) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:workcollege174@gmail.com) 
-@seronityregimecore
+[![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/Animeshjha64) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/https://www.linkedin.com/in/animesh-jha-9106722aa?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app) [![Pinterest](https://img.shields.io/badge/Pinterest-%23E60023.svg?logo=Pinterest&logoColor=white)](https://pinterest.com/Ani ID: 884676057960050102) [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://youtube.com/@animeshanimations7494) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:irtmrt3@gmail.com) 
 
 <!-- Snake Game Repo View -->
 
